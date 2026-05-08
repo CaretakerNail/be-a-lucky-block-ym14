@@ -1,4 +1,4 @@
-
+premium be a lucky block Script is the best be a lucky block Script, featuring fly and anti-ban. Safe and powerful for all your needs.
 
 
 
